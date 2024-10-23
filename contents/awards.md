@@ -1,9 +1,9 @@
-- First-prize Academic Scholarship, 2023.
+Strong learning ability
 
-- Freshman Academic Scholarship, 2022.
+Cheerful and lively personality with infectious emotions
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
+Ability to execute and act quickly
 
-- First-prize Enterprise Scholarship, 2021.
+Harmonious, friendly and helpful
 
-- First-prize Academic Scholarship, 2019.
+A good singer
